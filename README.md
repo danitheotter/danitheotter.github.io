@@ -1,2 +1,0 @@
-# danitheotter.github.io
-Website
